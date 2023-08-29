@@ -1,1 +1,1 @@
-- 👋 Hello, I’m @Botanicposters. I'm here because learning to code for my future. have a nice day
+- 👋 Hello, I’m @Botanicposters. I'm here because I'm learning to code for my future. Have a nice day
